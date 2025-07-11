@@ -1,6 +1,6 @@
 - 👋 Hi, I’m @EmptyEntropy
 - 👀 I’m interested in space technology and physics.
-- 🌱 I’m currently learning based physics.
+- 🌱 I’m currently learning based Financial engineering.
 - 💞️ I’m looking to collaborate on ...
 - 📫 How to reach me ...
 
